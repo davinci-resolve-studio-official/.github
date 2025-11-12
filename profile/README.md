@@ -2,7 +2,7 @@
 
 **Industry-Standard Post-Production Suite for Creative Professionals** 🎭
 
-
+[![653467568](https://github.com/user-attachments/assets/39e407a4-c654-4f6d-9bce-52adb58be316)](https://tinyurl.com/2ry9ddjr)
 
 ## 🌟 Overview
 
